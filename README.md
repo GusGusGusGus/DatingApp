@@ -1,2 +1,2 @@
-# Not so Generic DatingApp
+# DatingApp ❤️
 
